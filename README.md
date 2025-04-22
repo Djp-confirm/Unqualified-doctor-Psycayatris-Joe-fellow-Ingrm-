@@ -1,1 +1,0 @@
-# Unqualified-doctor-Psycayatris-Joe-fellow-Ingrm-
